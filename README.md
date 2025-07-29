@@ -36,3 +36,11 @@ Although I don't expect anyone to care about it, whatever.
 > Will move to west Japan in June.
 >
 > Immigrated to Canada, waiting for my new passport.
+
+> Update (July 2025):
+>
+> It's been a year and I'm doing somewhat decent.
+>
+> Since last update, I've set up my own business in California.
+>
+> Next goal is to publish the game my friends and I been working on since 2020.
